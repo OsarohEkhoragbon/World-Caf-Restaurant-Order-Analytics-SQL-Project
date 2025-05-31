@@ -57,4 +57,4 @@ With restaurants facing ever-shifting consumer trends and tight margins, using d
 ## 📬 Connect With Me
 If you're interested in how data analytics can transform business operations or would like to collaborate, feel free to connect:  
 📫 [osarohekhoragbon@gmail.com]  
-🔗 [LinkedIn Profile]
+🔗 [LinkedIn Profile](https://www.linkedin.com/in/osaroh-ekhoragbon/)
